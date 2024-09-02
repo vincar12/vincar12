@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @vincar12
 - 👀 I’m interested in things
-- 🌱 I’m currently learning some things
+- 🌱 I’m currently learning some data
 - 💞️ I’m looking to collaborate on certain things, maybe
-- 📫 How to reach me? email
+- 📫 How to reach me? email on vincartheoseta@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: lobsters are immortal
 
